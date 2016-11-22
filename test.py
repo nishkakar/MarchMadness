@@ -1,3 +1,0 @@
-####
-# Nishant, Oksana, Keenan & Justin
-####
